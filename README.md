@@ -3,11 +3,11 @@
 
 - 👯 I’m looking to collaborate on **Web development projects**
 
-- 💬 Ask me about **Frontend development, especially react 🙂**
+- 💬 Ask me about **Frontend development, especially React 🙂**
 
 - 📫 How to reach me **ebenezerukwe@gmail.com**
 
-- ⚡ Fun fact **I'm a massive Barca fan ⚽ 🔵🔴**
+- ⚡ Fun fact **I'm a huge Barca fan ⚽ 🔵🔴**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
