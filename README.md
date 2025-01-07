@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Frontend development, especially React 🙂**
 
-- 📫 How to reach me **ebenezerukwe@gmail.com**
+- 📫 How to reach me **ebenezerukwe@gmail.com** **+2348106747706**(WhatsApp too)
 
 - ⚡ Fun fact **I'm a huge Barca fan ⚽ 🔵🔴**
 
